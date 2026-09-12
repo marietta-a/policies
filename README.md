@@ -1,1 +1,1 @@
-Collection of Privacy Policies
+Collection of Privacy Policies for different projects
